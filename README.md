@@ -1,0 +1,1 @@
+Navigate to Steam Help (help.steampowered.com) and log in with your Steam account. Find the purchase you would like to refund and click on it. If your purchase is not listed, it falls too far outside of our refund window and is ineligible for a refund. Select the problem you are having with the product.
